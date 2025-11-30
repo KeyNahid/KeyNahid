@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KeyNahid
-- 👀 I’m interested in code, Ai , pumpkin dounat, 
+- 👀 I’m interested in code, Ai , 
 - 🌱 I’m currently learning Ai , edu , pilot , 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
